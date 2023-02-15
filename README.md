@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+You can reach me at marshall.grubb@gmail.com
+https://www.linkedin.com/in/marshallgrubb/
+marshallgrubb.com
+
+I like fighting games and anything with a good story
 <!--
 **Evernight27/Evernight27** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
