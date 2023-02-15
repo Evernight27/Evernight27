@@ -1,7 +1,9 @@
 ### Hi there 👋
 
 You can reach me at marshall.grubb@gmail.com
+
 https://www.linkedin.com/in/marshallgrubb/
+
 marshallgrubb.com
 
 I like fighting games and anything with a good story.
